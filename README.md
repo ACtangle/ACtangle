@@ -17,6 +17,6 @@ Here are some ideas to get you started:
 
 * 前端菜鸟
 * 极简主义者
-* 热爱生活、热爱灵魂
+* soulmate
 
 
